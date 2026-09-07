@@ -1,4 +1,4 @@
-# Hi, I'm Jiroo 👋
+# Hi, I'm Joory 👋
 
 ### 💻 Computer Science Graduate | 🤖 AI Explorer | 🎮 Aspiring Game Developer
 
